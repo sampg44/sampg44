@@ -1,9 +1,12 @@
 ## Hi there 👋 It's Sam 🐵
  
-# Samantha Pacheco
+# Samantha M. Pacheco Gómez
 I'm a undergraduate student at LCG UNAM in Juriquilla, Qro, Mex.
 Interested in small RNA's, conservation genetics and discovering new topics to be interested in!
 She/her
+
+reach me by: 
+- sam.pg.elo@gmail.com
 
 ### Sometimes I feel like I don't know anything, but we all learn at least one thing every day!
 
